@@ -1,2 +1,0 @@
-# gavno228
-gavno 
